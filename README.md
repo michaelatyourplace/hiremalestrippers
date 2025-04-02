@@ -1,1 +1,1 @@
-# male-revue-for-you
+# Charleston male strippers
